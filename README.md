@@ -9,25 +9,25 @@ https://andermatt-realestate.ch/ <br>
 https://mathijshanenkamp.com/
 
 ## Platforms
-https://dribbble.com/morgasmatron
-https://www.behance.net/
-https://www.pinterest.ch/
+https://dribbble.com/morgasmatron <br>
+https://www.behance.net/ <br>
+https://www.pinterest.ch/ <br>
 
 ## Typography
-https://fontsinuse.com/
-https://www.typewolf.com/
-https://open-foundry.com/
-https://www.theleagueofmoveabletype.com/
-https://www.collletttivo.it/
-https://www.awwwards.com/awwwards/collections/free-fonts/
-https://www.atipofoundry.com/
-https://creativemarket.com/free-goods
+https://fontsinuse.com/ <br>
+https://www.typewolf.com/ <br>
+https://open-foundry.com/ <br>
+https://www.theleagueofmoveabletype.com/ <br>
+https://www.collletttivo.it/ <br>
+https://www.awwwards.com/awwwards/collections/free-fonts/ <br>
+https://www.atipofoundry.com/ <br>
+https://creativemarket.com/free-goods <br>
 
 ## Photos & videos
-https://hypebeast.com/
-https://www.yatzer.com/
-https://www.pexels.com/
-https://unsplash.com/
-https://savee.it/
-https://same.energy/feed/Lonely
-https://www.itsnicethat.com/
+https://hypebeast.com/ <br>
+https://www.yatzer.com/ <br>
+https://www.pexels.com/ <br>
+https://unsplash.com/ <br>
+https://savee.it/ <br>
+https://same.energy/feed/Lonely <br>
+https://www.itsnicethat.com/ <br>
